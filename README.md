@@ -1,4 +1,6 @@
-## Hi there 👋
+##->*"In that case, won't you dance with me?*<-
+wip lol
+##->*"After all, that's a sign of boredom."*<-
 
 <!--
 **lembellique/lembellique** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
