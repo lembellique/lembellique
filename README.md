@@ -1,5 +1,5 @@
 <p align="center">
-˙✦ ━ will make this look nice later
+˙✦ ━ will make this look nice later, strawpage wip
 </p> 
 <p align="center">
 HIII you can call me the name of whatever character im cosplaying as or lemby! 
