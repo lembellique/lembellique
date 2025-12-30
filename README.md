@@ -5,4 +5,4 @@
 <p align="center">!!!im 17!!! please dni if under 15 <3 (no other public dni, i just block)</p>
 <p align="center">im autistic and not super good at socializing, please be patient w me!!! (tone indicators are appreciated)</p>
 <p align="center">the #1 chihiro ezaki fan okay? trust</p>
-<p align="center">![.](https://i.postimg.cc/1t2WQFLY/Untitled414-20251008204024.jpg)</p>
+<p align="center">![.](Untitled414_20251008204024.jpeg)</p>
