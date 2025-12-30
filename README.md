@@ -14,3 +14,6 @@ c + h okay always and encouraged (i find it comforting), interact freely unless 
 <p align="center">
 im autistic and not super good at socializing, please be patient w me!!! (tone indicators are appreciated)
 </p> 
+<p align="center">
+the #1 chihiro ezaki fan okay? trust
+</p> 
