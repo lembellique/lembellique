@@ -1,4 +1,3 @@
-<p align="center">
 ![](https://komarev.com/ghpvc/?username=lembellique&color=ff69b4&style=plastic&label=⟡)
 <p align="center">
 ˙✦ ━ will make this look nice later, strawpage wip
