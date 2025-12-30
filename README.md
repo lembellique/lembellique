@@ -1,5 +1,5 @@
-![](https://komarev.com/ghpvc/?username=lembellique&color=ff69b4&style=plastic&label=౨⟡ৎ)
 <p align="center">
+![](https://komarev.com/ghpvc/?username=lembellique&color=ff69b4&style=plastic&label=⟡)
 ˙✦ ━ will make this look nice later, strawpage wip
 </p> 
 <p align="center">
