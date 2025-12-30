@@ -4,4 +4,4 @@
 <p align="center">c + h okay always and encouraged (i find it comforting), interact freely unless stated otherwise (usually w2i if doing other stuff in the background)</p>
 <p align="center">!!!im 17!!! please dni if under 15 <3 (no other public dni, i just block)</p>
 <p align="center">im autistic and not super good at socializing, please be patient w me!!! (tone indicators are appreciated)</p>
-<p align="center">the #1 chihiro ezaki fan okay? trust</p>
+<p align="center">the #1 team x (bllk) fan okay? trust</p>
