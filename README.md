@@ -5,3 +5,4 @@
 <p align="center">!!!im 17!!! please dni if under 15 <3 (no other public dni, i just block)</p>
 <p align="center">im autistic and not super good at socializing, please be patient w me!!! (tone indicators are appreciated)</p>
 <p align="center">the #1 team x (bllk) fan okay? trust (also general bg character enjoyer)</p>
+<p align="center"><img src="https://i.postimg.cc/QC0sqVZt/Untitled438_20251028084657.png"/></p>
