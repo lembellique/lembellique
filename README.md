@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=lembellique&color=ff69b4&style=plastic&label=⟡)
+<p align="center"><img src="https://komarev.com/ghpvc/?username=lembellique&color=ff69b4&style=plastic&label=⟡"/>
 <p align="center">˙✦ ━ will make this look nice later, im struggling to figure out how github works</p>
 <p align="center">HIII you can call me the name of whatever character im cosplaying as or lemby!</p>
 <p align="center">semi-afk most of the time, if you interact and i don't respond just send me a whisper bc im probably offtab or doing something else! c+h is okay ALWAYS and encouraged :D</p>
