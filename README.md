@@ -1,3 +1,4 @@
+<p align="center"><img src="https://i.postimg.cc/Fzhpk7zK/b8930f7e.gif"/></p>
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=13&pause=1000&color=F74CB7&width=435&lines=psychic+girl%2C+where's+my+happy+ending%3F;your+method's+patent+pending%2C+so+why+can't+i+smile%3F" alt="Typing SVG" /></a></p>
 <p align="center"><img src="https://komarev.com/ghpvc/?username=lembellique&color=ff69b4&style=plastic&label=⟡"/>
 <p align="center"><a href="https://rentry.co/thedarkofthematinee">rentry</a> | <a href="https://lemzqx.atabook.org">sign ata!</a>
