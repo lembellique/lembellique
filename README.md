@@ -4,6 +4,7 @@
 <p align="center"><img src="https://i.postimg.cc/K8sm9Ths/0f8f5b1b.gif"/> <a href="https://rentry.co/thedarkofthematinee">rentry</a> | <a href="https://lemzqx.atabook.org">sign ata!</a> <img src="https://i.postimg.cc/y8r7fRCb/0b971b30.gif"/></p>
 <p align="center">the #1 team x (bllk) fan okay? trust (also general bg character enjoyer)</p>
 <p align="center"><img src="https://i.postimg.cc/QC0sqVZt/Untitled438_20251028084657.png" width="200" height="200"/></p>
+<p align="center">╰┈➤ˎˊ˗current fandoms: bllk, umamusume, pjsk, tsuritama</p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31axxee7wuudb7rlddyi7bpxgv34&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true">
