@@ -1,5 +1,5 @@
 <p align="center"><img src="https://i.postimg.cc/SN72x7cx/Untitled7-20260613181109.png"/></p>
-im rmking this okay
+<p align "center"><img src="https://i.postimg.cc/4xvzjHJr/1-tigerandbunny.gif"/></p>
 <p align="center"><img src="https://komarev.com/ghpvc/?username=lembellique&color=9cb544&style=plastic&label=✧˖°&abbreviated=true"/></p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
